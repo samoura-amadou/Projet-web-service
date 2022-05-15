@@ -4,4 +4,4 @@ Pour la procedure de lancement, il vous faut ouvrir ce projet dans un editeur de
 
 
 
-Pour toutes questions, merci de contacter: amadou.samoura@yahoo.fr
+Pour toutes questions, merci de contacter: samoura.amadou@yahoo.fr
